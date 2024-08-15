@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Sleepy Joe
+- 👀 I’m interested in sleebing
+- 🌱 I’m currently learning how to wake up
+- 💞️ I’m looking to collaborate on sleeb
+- 📫 How to reach me: in your dreams cause im always sleebing
+- 😄 Pronouns: "sleeping noises"/snorg
+- ⚡ Fun fact: sleebp
